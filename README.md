@@ -7,8 +7,8 @@ if you want to know more about me i will post Frequently Asked Questions and mor
 
 
 ## Contact Me
-- Email: mirobyalex193@gmail.com
-- Phone (SMS Only!): +1 (330) 206-3464
+- Email: Unknown
+- Phone (SMS Only!): Unknown
 
 <!---
 Viper193xAzrael/Viper193xAzrael is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
